@@ -1,0 +1,2 @@
+sennin-douzin-plusのgithub.io版です
+使用しすぎると終わるので気をつけてね
